@@ -1,0 +1,1 @@
+# metod_digital_redact_photo
